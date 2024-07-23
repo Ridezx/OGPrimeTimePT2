@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OGPrimeTimePT2
 - 👀 I’m interested in ... Nonethical Hacking.
 - 🌱 I’m currently learning ... Cybersecurity
-- 💞️ I’m looking to collaborate on ... Literaly anything.
+- 💞️ I’m looking to collaborate on ... Literally anything.
 - 📫 How to reach me ... s01281909@acad.tri-c.edu
